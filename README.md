@@ -1,0 +1,1 @@
+Pārbaudes darbu izpildīju savu spēju robežās. Ja mācītos papildus, būtu bijis vieglāk un būtu izpildijis visus uzdevumus.
